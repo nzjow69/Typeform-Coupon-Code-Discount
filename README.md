@@ -282,7 +282,7 @@ Whether you're a small business owner, marketer, or educator, Typeform is a game
 
 With its user-friendly interface and stunning design, you can elevate your data collection processes and engage
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfnrxBk2BLq2s1oRlWuFkWECcelreqMXRTSA__A1RcQoO0-tVlFj1KM4OahtiMNX-1if_JHHq8DRDDicUBvBSAOU_glU_S1Cp1E4njDQbCIjLWaxRnj1sa8ZO7wiaZQY6aoOnUSpw?key=iLn-sD7LbdmGFy7UinmNaK2t)](https://bit.ly/4ftdWg2)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfnrxBk2BLq2s1oRlWuFkWECcelreqMXRTSA__A1RcQoO0-tVlFj1KM4OahtiMNX-1if_JHHq8DRDDicUBvBSAOU_glU_S1Cp1E4njDQbCIjLWaxRnj1sa8ZO7wiaZQY6aoOnUSpw?key=iLn-sD7LbdmGFy7UinmNaK2t)](https://typeform.cello.so/URY616zEaEo)
 
 your audience like never before. And let's not forget those amazing Typeform discount codes and discounts that'll help you save big! So, what are you waiting for?
 
